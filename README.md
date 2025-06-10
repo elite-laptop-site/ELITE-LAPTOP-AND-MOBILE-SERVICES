@@ -49,18 +49,16 @@ Sunday	Closed
 
 📍 Location
 Elite Laptop and Mobile Services
-[Your Street Address Here]
+CHENNAI KUNDRATHUR
 [City, State, ZIP]
-[Optional: Google Maps link]
+
 
 📞 Contact Us
-Phone: [Your Phone Number]
+Phone :7305633270
 
-Email: [Your Email Address]
 
-WhatsApp: [WhatsApp Number, if available]
 
-Website: [Your Website URL]
+
 
 💬 Why Choose Us?
 ✅ Certified technicians
